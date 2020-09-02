@@ -1,2 +1,0 @@
-#Satya Sairam
-:) :)
